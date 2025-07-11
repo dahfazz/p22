@@ -40,8 +40,8 @@ Adam Silver revient sur scène. Lui-même semble quelque peu décontenencé.
 
 "Avec le troisième choix de la draft NBA 2028, les Philadelphia 76ers sélectionnent... Kashen Reed, de Kentucky."
 
-L’arène s’enflamme. Sur l'écran apparait la fan zone en direct de Philadelphie, les fans sont en plein délire. On vient de leur offrir la plus innatendue des surprises.
-Mais dans la green room, Kashen ne bouge toujours pas. Puis se lève lentement, in extremis, vraiment au moment où le malaise se serait installé. Il embrasse sa mère, tape dans la main de son père. Le sourire qu’il affiche pour les caméras est mécanique. Tandis qu'il s'approche de la scène, son regard croise celui de Damon Devine. Celui-ci lui renvoie le regard le plus bienveillant possible, espérant surtout éviter tout dérapage lorsque Kashen va prendre la parole.
+L’arène s’enflamme. Sur l'écran apparait la fan zone en direct de Philadelphie, les fans sont en plein délire, on vient de leur offrir la plus innatendue des surprises.
+Mais dans la green room, l'ambiance est toute autre. Kashen reste d'abord immobile, puis se lève lentement, tout juste au moment où le malaise allait s'installer. Il embrasse sa mère, tape dans la main de son père. Le sourire qu’il affiche pour les caméras est mécanique. Tandis qu'il s'approche de la scène, son regard croise celui de Damon Devine. Celui-ci lui renvoie le regard le plus bienveillant possible, espérant surtout éviter tout dérapage lorsque Kashen va prendre la parole.
 
 Les photographes immortalisent le sourire du plus grand prospect que la NBA ait connu, Adam Silver semble soulagé et tend le micro à Kashen.
 
@@ -56,33 +56,34 @@ Les photographes immortalisent le sourire du plus grand prospect que la NBA ait 
 **Bleacher Report**  
 > “Reed rejoint une équipe ambitieuse. Les Sixers n’ont pas hésité une seconde. L’avenir dira s’ils ont eu raison.”
 
+D'un geste discret son agent lui donne rendez-vous en coulisse. Kashen quitte la scène, s'engoufre d'un pas mécanique dans le long couloir qui mène aux loges, il entre rapidement dans la sienne, retire sa casquette des Sixers. Il essuie la sueur sur son front, balaie la petite pièce du regard, comme pour s'assurer qu’aucune caméra ne le filme, puis son agent passe à son tour le pas de la porte, que Kashen referme immédiatemment derrière lui, il a la sensation qu'il va imploser, il veut une explication immédiatement.
 
-En coulisses — 22h36
-Kashen retire sa casquette des Sixers en descendant l’escalier menant aux vestiaires. Il essuie la sueur sur son front, jette un œil derrière lui pour s’assurer qu’aucune caméra ne le suit.
-Damon Devine, son agent, l’attend près des casiers métalliques, déjà au téléphone, un sourire de circonstance. Il raccroche dès qu’il voit Kash arriver.
+« Je comprends ta colère, et je ne comprends pas non plus ce qui s'est passé, maintenant, il faut aller de l'avant. 
 
-« Philly, c’est une vraie ville de basket ! Tu vas avoir ton public, ton équipe, ton... »
+Philly, c’est une vraie ville de basket ! Tu vas avoir ton public, ton équipe, ton... »
 
 Kashen l’interrompt d’un geste.
 
-« J’étais censé sortir premier. Premier. »
+« J’étais censé sortir premier. Je suis le numéro un, je suis le meilleur de cette draft. Je suis le meilleur de cette ligue.»
 
 Damon inspire, lève les yeux au ciel avec une bienveillance maîtrisée.
 
-« Ouais. Et Trevor Banks était censé sortir cinquième. Franchement, personne ne sait quelle mouche a piqué le GM des Pistons, mais leur choix a tout chamboulé. Focalise-toi sur une chose, tu vas avoir les clés de la franchise de Julius Erving, Allen Iverson, tu vas régner dans une ville folle de basket qui n'a pas mis la main sur le trophée depuis 1983 !»
+« On est d'accord tous les deux là-dessus. Et Trevor Banks était censé sortir cinquième. Franchement, personne ne sait quelle mouche a piqué le GM des Pistons, mais leur choix a tout chamboulé.
 
-Kashen s’assoit sur un banc, penché en avant, les coudes sur les genoux. Libéré de la pression des regards et des caméras, il réussit enfin à se reconnecter avec ses sentiments. Ce que dit son agent est absolument vrai, et ça l'inspire au plus haut point.
+Focalise-toi sur une chose, tu vas avoir les clés de la franchise de Julius Erving, Allen Iverson, tu vas régner dans une ville folle de basket qui n'a pas mis la main sur le trophée depuis 1983 !»
+
+Kashen s’assoit sur un banc, penché en avant, les coudes sur les genoux. Libéré de la pression des regards et des caméras, il réussit enfin à se reconnecter avec ses sentiments. Ce que dit son agent a du sens, et ça l'inspire.
 
 « Les Pistons... Ils m’ont snobé. C’est noté. »
 « Les Kings... Ils m’ont snobé. C’est noté. »
 
 Damon s’accroupit devant lui, les mains sur les cuisses.
 
-« Alors marque-les au fer. Rentre dans la ligue avec une mission. Pas avec de la rancœur, avec une quête. Quand tu seras élu Rookie de l'Année, tout le monde aura la preuve de qui avait tort, et dis-toi que ce sera le trophée et la récompense la moins prestigieuse de ta carrière...»
+« Alors marque-les au fer. Rentre dans la ligue avec une mission. Pas avec de la rancœur, avec une quête. Quand tu seras élu Rookie de l'Année, tout le monde aura la preuve de qui avait tort, et dis-toi que ça ne sera que la première et la moins prestigieuse des récompenses que tu gagneras dans ta carrière...»
 
-Kashen relève les yeux. Ils brillent, mais ce n’est pas de l’émotion. C’est de la fièvre. De la revanche.
-Il hoche la tête, sans un mot.
+Kashen relève la tête. Sa colère a laissé sa place à de la fièvre. De la revanche.
+Il hoche la tête plusieurs fois, sans un mot, comme si dans sa tête raisonnaient déjà les acclamations des fans de Philadelphie.
 
-Une photo de Kash postée sur son compte Instagram, casquette des Sixers vissée sur la tête, pouce levé et pointant l'obectif du doigt avec son autre main permet enfin de relayer sa réaction au-dela de cette petite salle privée. Les fans trépignent, les journalistes digèrent la nouvelle et cherchent des explications, et la mère de Kashen vient l'enlacer et l'embrasser. Son père lui tape l'épaule et lui dit "Bravo champion !"
+Une photo de Kash postée sur son compte Instagram, casquette des Sixers vissée sur la tête, pouce levé et pointant l'objectif avec son autre main permet enfin de relayer publiquement une réaction. Les fans trépignent, les journalistes cherchent des explications, et la mère de Kashen vient le rejoindre, l'enlacer et l'embrasser. Son père lui tape l'épaule et lui dit "Bravo champion !"
 
 La saison NBA n’a même pas encore commencé.

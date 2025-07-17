@@ -2,7 +2,7 @@ Parking du Wells Fargo Center, Zone privée VIP
 
 Caleb traverse seul le parking réservé aux joueurs habituellement, ses baskets grincent sur le béton lisse.
 
-Une alarme de portière clognote dans le noir, la sienne.
+Une alarme de portière clignote dans le noir, la sienne.
 
 Il s'approche de sa voiture, mais il entend dex voix. Deux hommes, vers le fond du parking. Ca monte d'un ton. Des insultes, peut-être, puis, un hurlement.
 
@@ -15,7 +15,7 @@ Mais il ne bouge pas.
 
 Un coup. Un autre. Un fracas métallique. Puis le son d'un corps qui tombe.
 
-Une silhouette apparaît. Casquette enfoncée, veste brillante. Même de loin Caleb reconnait les épaules larges, le pas félin, le profil anguleux.
+Une silhouette apparaît. Casquette enfoncée, veste brillante. Même de loin Caleb reconnaît les épaules larges, le pas félin, le profil anguleux.
 
 Kashen Reed.
 

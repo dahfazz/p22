@@ -1,3 +1,4 @@
+
 Caleb n’avait pas dormi. Pas une minute. Il était resté allongé sur son lit, yeux écarquillés, les draps enroulés autour de ses jambes comme des liens, téléphone à la main et chaîne d'info sur la TV fixé au mur face à lui. Il n’osait pas bouger.
 
 Toutes les dix secondes, il vérifiait les notifications.

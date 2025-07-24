@@ -40,13 +40,13 @@ Il attrape le dictaphone puis presse la touche Enregistrement de manière bien v
 
 — On va reprendre calmement. Vous êtes venu nous dire que Tré Johnson a disparu. Quand l’avez-vous vu ou entendu pour la dernière fois ?
 
-— J’ai reçu un message vocal samedi soir. Enfin, tôt dimanche matin. À 2h14 exactement. Depuis, plus rien.
+— J’ai reçu un message vocal mercredi soir. Depuis, plus rien.
 
-— Et ce message disait quoi ?
+— On peut écouter ce message ?
 
 C.J. sortit son téléphone, les doigts tremblants. Tapota l'écran, le posa doucement sur la table. Foster s'assis, comme pour mieux fixer ce téléphone. Puis C.J. lança la lecture du message. 
 
-La vois excitée de Tré détona immédiatement avec le silence du bureau :
+Pendant que Foster nota l'heure exacte du message, la voix surexcitée de Tré détona immédiatement avec le silence du bureau :
 
 *Yo C.J. C’est plié. Reese a compris. Le concert va avoir lieu.
 J’te l’avais dit, mec. Un p’tit clin d’œil à ce que tu sais, un sourire... et maintenant, Tasker Front va être sur scène au Wells Fargo.

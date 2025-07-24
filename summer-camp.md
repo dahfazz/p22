@@ -1,4 +1,4 @@
-Camden, New Jersey — Septembre 2031
+Camden, New Jersey — Septembre 2034
 
 Le parking du 76ers Practice Facility est déjà plein à 8h du matin. Une fine brume flotte encore au-dessus de la Delaware River, et les premiers rayons du soleil filtrent à travers les grandes baies vitrées de la salle d’entraînement. Les semelles crissent, les ballons résonnent, les souffles se font courts. L’atmosphère est studieuse, presque ordinaire, comme un début d'automne.
 

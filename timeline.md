@@ -1,0 +1,7 @@
+- 27 Juin 2031 draft Kashen
+- juin 2034 draft Caleb
+- septembre 2034 summer camp + blessure
+- 25 Octobre 2034 opening night
+- oct à fev 2034 ascension Caleb
+- mercredi 7 fevrier soiree VIP
+- jeudi 8 fev : pas de caméra, liste invités
